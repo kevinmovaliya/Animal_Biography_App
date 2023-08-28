@@ -23,7 +23,6 @@
  </br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br></br>
  Mechanism Video
  
-https://user-images.githubusercontent.com/96048173/195866561-5898985c-4392-42f7-b21c-e584f3e5745e.mp4
  
 </p>
 
